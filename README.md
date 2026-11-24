@@ -1,2 +1,0 @@
-# RedwinnerClub
-Club Fitness
